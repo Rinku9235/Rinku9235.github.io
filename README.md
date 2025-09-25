@@ -1,2 +1,3 @@
 # Rinku9235.github.io
-TECH
+TECH KNOWLADGE
+
